@@ -1,0 +1,1 @@
+Este Proyecto es una Galería WEB que hice para una amiga y su gatito, se llama Zuko, tiene una discapacidad y una enfermedad en su ojito. Pero su dueña Abigail es muy buena cuidandolo y dandole lo que puede para que este sano y tenga una buena vida.
